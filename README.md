@@ -51,3 +51,4 @@ Here are some ideas to get you started:
 ## Connect
 
 - LinkedIn: https://linkedin.com/in/andreiesguerra
+- Socials: https://linktr.ee/andreiverse 
